@@ -1,4 +1,4 @@
 
 
-Uploading 画面収録 2026-08-25 21.32.13.mov…
+https://github.com/user-attachments/assets/5ed331a1-a7c3-48d2-9cdf-99b05526fd9d
 
